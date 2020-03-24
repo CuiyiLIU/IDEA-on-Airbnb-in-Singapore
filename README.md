@@ -1,1 +1,0 @@
-# IDEA-on-Airbnb-in-Singapore
